@@ -75,6 +75,18 @@ Tres años no borran décadas de abandono, pero sí marcan una dirección.
 
 ---
 
+## Singed y Orianna — Paradero Desconocido
+
+Nadie sabe dónde está Singed.
+
+Después de la guerra desapareció de Zaun sin dejar rastro, y su hija **Orianna** —ahora en su cuerpo mecánico— se fue con él. No hay registros, ni testigos fiables, ni pistas confirmadas. Su laboratorio quedó vacío.
+
+En Zaun su nombre todavía pesa: fue el creador del shimmer y de lo que le pasó a Vander. Las Luciérnagas no lo buscan de forma activa, pero cualquier rumor sobre él llega tarde o temprano a oídos de Ekko.
+
+> **Regla narrativa:** Singed y Orianna no aparecen en escena ni se revela su ubicación salvo decisión expresa del autor.
+
+---
+
 ## Relación con Piltover
 
 Funcional. Tensa en los bordes. Honesta en el fondo.

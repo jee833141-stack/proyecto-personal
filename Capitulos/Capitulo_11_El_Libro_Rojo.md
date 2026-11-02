@@ -49,7 +49,7 @@ Vi la miró un momento más. Luego apoyó la cabeza contra la pared de hierro y 
 
 —Lo sé, Vi.
 
-—Se había quitado el delantal. —Vi abrió los ojos y miró el techo de hierro oxidado—. Tenía los brazos al aire. Y el cuello. Y ahí estaban. Los tatuajes. Lo que queda de ellos. Tres puntos en la muñeca, una línea en el codo, una nube en el cuello. —Se le quebró un poco la voz—. Las nubes. Cait, me acuerdo de cuando se hizo las nubes. Tenía catorce años. Se las hizo ella misma, con una aguja de coser y tinta del sector cuatro, sentada en el suelo del sótano, y se le infectó el cuello. Estuvo con fiebre tres días.
+—Se había quitado el delantal. —Vi abrió los ojos y miró el techo de hierro oxidado—. Tenía los brazos al aire. Y el cuello. Y ahí estaban. Los tatuajes. Lo que queda de ellos. Tres puntos en la muñeca, una línea en el codo, una nube en el cuello. —Se le quebró un poco la voz—. Las nubes. Cait, no sé cuándo se hizo las nubes. No estaba. Estaba en Stillwater. La primera vez que se las vi ya las tenía, en el cuello de alguien que me apuntaba con un arma. —Tragó saliva—. Me perdí eso. Me perdí todo. Y ahora casi no le quedan.
 
 Caitlyn no dijo nada. Le puso la mano encima de la rodilla.
 
@@ -279,7 +279,7 @@ Caitlyn levantó la vista.
 
 Caitlyn no dijo nada.
 
-—Me dijo que un día se despertó y llevaba tres días sin oír a nadie dentro de su cabeza. —A Vi le tembló la voz—. Tres días. En toda su vida. Cait, ella oía voces desde los ocho años. Desde el día de… —Se detuvo—. Desde que Mylo y Claggor murieron. Yo lo sabía. No quería saberlo, pero lo sabía. Las oía hablar con ella por las noches. En el sótano. En la guarida de Silco. Siempre.
+—Me dijo que un día se despertó y llevaba tres días sin oír a nadie dentro de su cabeza. —A Vi le tembló la voz—. Tres días. En toda su vida. Cait, ella oía voces desde los ocho años. Desde el día de… —Se detuvo—. Desde que Mylo y Claggor murieron. Yo no estaba. Me la quitaron esa misma noche y no la volví a ver en años. Pero cuando por fin la encontré, ya hablaba sola. Con ellos. Lo vi en sus ojos y no quise saberlo.
 
 Se dio la vuelta. Tenía las lágrimas cayéndole por la cara y no hacía nada por esconderlas.
 

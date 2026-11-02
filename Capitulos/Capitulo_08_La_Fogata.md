@@ -61,7 +61,7 @@ El sonido llegaba hasta la fogata, pequeño y regular, por encima del viento.
 
 Vi cerró los ojos.
 
-Hacía tres años, en otra vida, en un sótano de Zaun con las paredes pintadas de colores y un olor a pólvora y a chicle, había oído ese sonido mil veces. Muy tarde por la noche. Desde la cama de arriba de una litera. *Tac. Tac. Tac.* Un martillo pequeño sobre metal pequeño. Y una voz bajita, que se creía que nadie la oía, canturreando algo desafinado entre golpe y golpe.
+Hacía muchos años, en otra vida, antes de Stillwater, en el escondite de debajo del bar de Vander, con olor a aceite de máquina y a pólvora casera, había oído ese sonido mil veces. Muy tarde por la noche. Desde la cama de arriba de una litera. *Tac. Tac. Tac.* Un martillo pequeño sobre metal pequeño. Y una voz bajita, que se creía que nadie la oía, canturreando algo desafinado entre golpe y golpe.
 
 Vi abrió los ojos.
 
@@ -135,7 +135,7 @@ Sevika se quedó callada.
 
 Vi señaló con la barbilla hacia la mesa del otro lado del patio.
 
-—Eso. Exactamente eso. Lo he oído toda mi vida. Lo reconocería con los ojos cerrados. Lo reconocería dentro de cien años. Lo reconocería muerta.
+—Eso. Exactamente eso. Lo oí cada noche hasta que me la quitaron. Lo reconocería con los ojos cerrados. Lo reconocería dentro de cien años. Lo reconocería muerta.
 
 El fuego crepitó. Al otro lado del círculo, alguien ganó una ronda y los gemelos Vask gritaron.
 

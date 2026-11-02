@@ -335,7 +335,7 @@ No contestó.
 
 Lara sintió algo romperse por dentro. No mucho. Un poco. Lo suficiente.
 
-*No te odio*, pensó. *Nunca te he odiado. Ni siquiera cuando dijiste lo que dijiste. Ni siquiera cuando te fuiste con la enforcer. Ni siquiera cuando me dejaste sola con Silco. Nunca. Ni un día.*
+*No te odio*, pensó. *Nunca te he odiado. Ni siquiera cuando dijiste lo que dijiste. Ni siquiera cuando no volviste. Ni siquiera cuando creí que me habías dejado sola con Silco. Ni siquiera cuando apareciste años después con la enforcer. Nunca. Ni un día.*
 
 *Es que no puedo.*
 
